@@ -1,0 +1,1 @@
+ado ado quem ta lendo é viado 
